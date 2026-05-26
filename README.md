@@ -1,3 +1,0 @@
-# CoreByte
-
-Loja De Jogos
